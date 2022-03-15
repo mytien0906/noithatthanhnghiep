@@ -1,0 +1,2 @@
+<h4><span style="color: #000000; font-size: 90%;"><strong>BÀN THỜ THIẾT KẾ TN344 </strong></span></h4>
+<p><span style="color: #000000;">Liên hệ:</span> <strong><span style="color: #ff9a00;">0987 551 528</span></strong></p>
